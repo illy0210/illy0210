@@ -7,4 +7,4 @@
 - ⚡ Hobbies: I’m a mountain lover who enjoys hiking, learning new skills, and solving data challenges!  
 
 # Collaborators
-- 👧🏻🤝👧🏽 **Greta** - [https://github.com/gretariva/gretariva]
+- 👩‍🤝‍👩 🤝 **Greta** - [GitHub Profile](https://github.com/gretariva/gretariva)
